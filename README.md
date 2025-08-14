@@ -1,6 +1,6 @@
 # 🗂️Currículo em Inglês.
 
-**Currículo traduzido para inglês para vagas estrangeiras.
+**Currículo traduzido para inglês para vagas estrangeiras. Traduzido por Chat-GPT5.
 
 ---
 
